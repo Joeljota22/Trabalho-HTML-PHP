@@ -1,0 +1,2 @@
+<h3>Sobre a marca Love Company :</h3>
+<h5>Somos uma marca inspirada no amor, e buscando essa tendência jovial estamos dispostos a mudar a tendência da moda com estilos de camisa diferenciados, com um tecido extremamente confortavel, preço completamente acessível e beleza imcomparável, você não terá outra escolha. Seja Love Company . </h5>
